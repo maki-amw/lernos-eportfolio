@@ -5,6 +5,7 @@ were aware that we wanted to connect this experiment with something that
 could give something back to others who would try it after us.
 
 ![](./images/image1.jpg)
+Sketchnote CC BY Katrin Mäntele [@kleinerw4hnsinn](https://twitter.com/kleinerw4hnsinn)
 
 Basically each of us had his own topic that he pursued during the circle
 time. Nevertheless, the shared experience of supporting each other and
@@ -89,6 +90,7 @@ for discussion (see Bernhardt / Kirchner 2007: 82 f. & Kirchner 2015:
 32 f.).
 
 ![Illustration of an ePortfolio as a sketchnote from Katrin Mäntele [@kleinerw4hnsinn](https://twitter.com/kleinerw4hnsinn) (CC BY)](./images/image4.jpeg)
+Illustration of an ePortfolio as a sketchnote CC BY Katrin Mäntele [@kleinerw4hnsinn](https://twitter.com/kleinerw4hnsinn)
 
 Little scientific exkursion (optional):
 
@@ -171,6 +173,7 @@ entries and tweets (see Kirchner 2015: 57 with reference to Bräuer
 The following infographic visually summarizes these processes:
 
 ![Illustration of learning with ePortfolios as sketchnote by [@kleinerw4hnsinn](https://twitter.com/kleinerw4hnsinn) (CC BY)](./images/image5.jpeg)
+Illustration of learning with ePortfolios as a sketchnote CC BY Katrin Mäntele [@kleinerw4hnsinn](https://twitter.com/kleinerw4hnsinn)
 
 *According to a slightly adapted model of self-directed connective learning with e-portfolio blogs (Kirchner 2015: 58, Figure 11) as a further development following Bernhardt / Kirchner 2007: 89 and with reference to Hilzensauer, Hornung-Prähauser 2006: 5*
 
